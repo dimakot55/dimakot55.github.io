@@ -1,1 +1,1 @@
-Dima Kotovenko's personal website [dimakotovenko.github.io](dimakotovenko.github.io)
+Dima Kotovenko's personal website [dimakot55.github.io](dimakot55.github.io)
